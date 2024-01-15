@@ -7,3 +7,4 @@ Belajar bersama tentang GIT
 1. Najib - TrainerProgrammingGamelab
 2. Bagus - bagus1909
 3. M Rizal - mohrizalyulianto01
+4. Ganjar - GansuCreatif
