@@ -9,3 +9,4 @@ Belajar bersama tentang GIT
 3. M Rizal - mohrizalyulianto01
 4. Petrus - Petrus743
 5. Ganjar - GansuCreatif
+6. Kevin - kdxvtto
