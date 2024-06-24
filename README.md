@@ -6,3 +6,4 @@ Belajar bersama tentang GIT
 
 1. Najib - TrainerProgrammingGamelab
 2. Edy Susilo 🌻 - olisuside 
+3. Mohammad Irbah 😸 - mohammadirbah
