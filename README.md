@@ -9,3 +9,4 @@ Belajar bersama tentang GIT
 3. Mohammad Irbah 😸 - mohammadirbah
 4. Muhammad Hafidz Amanullah Abyan 🦕 - Abyantch
 5. Zhazkeiya Sheelfa Irawaty 🐅 - saskeiya
+6. Assiddiq Mukhlis Abd - Assiddiq-Mukhlis
