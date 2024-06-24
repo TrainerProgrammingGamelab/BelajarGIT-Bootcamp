@@ -9,4 +9,6 @@ Belajar bersama tentang GIT
 3. Mohammad Irbah 😸 - mohammadirbah
 4. Muhammad Hafidz Amanullah Abyan 🦕 - Abyantch
 5. Zhazkeiya Sheelfa Irawaty 🐅 - saskeiya
-6. Cweto Bolodiko Ajarwiro 🦅 - KazuyaKeito
+6. Assiddiq Mukhlis Abd - Assiddiq-Mukhlis
+7. Yusuf Muhammad ✨ - YusufM12
+8. Cweto Bolodiko Ajarwiro 🦅 - KazuyaKeito
