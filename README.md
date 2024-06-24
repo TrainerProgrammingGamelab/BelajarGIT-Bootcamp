@@ -8,3 +8,4 @@ Belajar bersama tentang GIT
 2. Edy Susilo 🌻 - olisuside 
 3. Mohammad Irbah 😸 - mohammadirbah
 4. Muhammad Hafidz Amanullah Abyan 🦕 - Abyantch
+5. Zhazkeiya Sheelfa Irawaty 🐅 - saskeiya
